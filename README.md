@@ -11,7 +11,7 @@
 
 - All of my projects? NOT YET
 
-- 📫 How to reach me **rd230906@gmail.com**
+- How to reach me **rd230906@gmail.com**
 
 - Fun fact **I think I am Funny??**
 
